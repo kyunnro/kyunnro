@@ -8,4 +8,4 @@ An IT and tech enthusiast who loves *coding vibes* (although I'm still learning 
 - 💞️ **I’m looking to collaborate on** *beginner-friendly* IT projects, building websites for student events, or anything that needs the magical touch of a PDD (Publication, Decoration, and Documentation) specialist.
 - 📫 **How to reach me:** [https://www.instagram.com/dico_havianto?igsh=MTlwMHQ3Z2h5MWw3cg==]
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Even though syntax errors in my code editor can give me a headache, when it comes to visuals, design, or being the go-to PDD coordinator for committees, you can always count on me! Oh, and my Japanese listening comprehension is actually around average now (thanks to all the anime and VTubers!). 🎧🇯🇵
+- ⚡ **Fun fact:** Even though syntax errors in my code editor can give me a headache, when it comes to visuals, design, or being the go-to PDD for committees, you can always count on me! Oh, and my Japanese listening comprehension is actually around average now (thanks to all the anime and VTubers!). 🎧🇯🇵
